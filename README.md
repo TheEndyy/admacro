@@ -1,1 +1,1 @@
-# __Endy's__ Anime Defenders MACRO
+# <u>Endy's</u> Anime Defenders MACRO
