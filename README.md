@@ -1,1 +1,1 @@
-# admacro
+# __Endy's__ Anime Defenders MACRO
